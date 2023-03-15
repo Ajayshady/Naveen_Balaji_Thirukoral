@@ -36,3 +36,9 @@
 
 ---
 
+## Thirukoral-7
+
+* [Click Here](Naveen_Balaji_Thirukoral)
+
+---
+
