@@ -38,7 +38,13 @@
 
 ## Thirukoral-7
 
-* [Click Here](Naveen_Balaji_Thirukoral)
+* [Click Here](https://www.youtube.com/watch?v=B980Egd0thQ)
+
+---
+
+## Thirukoral-8
+
+* [Click Here](https://www.youtube.com/watch?v=qzgoZWb0-Xw)
 
 ---
 
