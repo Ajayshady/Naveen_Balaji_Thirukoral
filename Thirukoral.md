@@ -48,3 +48,22 @@
 
 ---
 
+## Thirukoral-9
+
+* [Click Here](https://www.youtube.com/watch?v=atHaqEp0cCA)
+
+---
+
+
+
+## Thirukoral-10
+
+* [Click Here](https://www.youtube.com/watch?v=sc-rm6_J1QU)
+
+---
+
+## Thirukoral-11
+
+* [Click Here](https://www.youtube.com/watch?v=T0uiZxVDVx8)
+
+---
