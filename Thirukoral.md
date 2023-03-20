@@ -67,3 +67,11 @@
 * [Click Here](https://www.youtube.com/watch?v=T0uiZxVDVx8)
 
 ---
+
+
+## Thirukoral-12
+
+* [Click Here](https://www.youtube.com/watch?v=M2WB8Zn-kxE)
+
+---
+
