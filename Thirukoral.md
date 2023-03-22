@@ -75,3 +75,16 @@
 
 ---
 
+## Thirukoral-13
+
+* [Click Here](https://www.youtube.com/watch?v=nR85w4r31gE)
+
+---  
+
+## Thirukoral-14
+
+* [Click Here](https://www.youtube.com/watch?v=ZEVnTDYm4n0)
+
+---
+
+
