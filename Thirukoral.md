@@ -105,4 +105,9 @@
 
 ---
 
+## Thirukoral-18
+
+* [Click Here](https://www.youtube.com/watch?v=Q_RzKneG90Y)
+
+---
 
