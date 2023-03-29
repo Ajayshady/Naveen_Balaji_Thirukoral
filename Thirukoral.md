@@ -123,3 +123,8 @@
 
 ---
 
+## Thirukoral-21
+
+* [Click Here](https://www.youtube.com/watch?v=G3rme6TKffA)
+
+---
