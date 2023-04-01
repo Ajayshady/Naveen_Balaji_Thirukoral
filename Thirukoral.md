@@ -128,3 +128,23 @@
 * [Click Here](https://www.youtube.com/watch?v=G3rme6TKffA)
 
 ---
+
+
+## Thirukoral-22
+
+* [Click Here](https://www.youtube.com/watch?v=FYG2uswJ9mI&feature=youtu.be)
+
+---
+
+## Thirukoral-23
+
+* [Click Here](https://www.youtube.com/watch?v=JoEpaog6kjE)
+
+---
+
+## Thirukoral-24
+
+* [Click Here](https://www.youtube.com/watch?v=zNKjPN4Y-oc)
+
+---
+
