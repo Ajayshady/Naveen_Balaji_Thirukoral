@@ -148,3 +148,8 @@
 
 ---
 
+## Thirukoral-25
+
+* [Click Here](https://www.youtube.com/watch?v=-MLpRQjJQ_M)
+
+---
