@@ -153,3 +153,30 @@
 * [Click Here](https://www.youtube.com/watch?v=-MLpRQjJQ_M)
 
 ---
+
+## Thirukoral-26
+
+* [Click Here](https://www.youtube.com/watch?v=pdwWmatDa4E)
+
+---
+
+## Thirukoral-27
+
+* [Click Here]()
+
+---
+
+
+## Thirukoral-28
+
+* [Click Here]()
+
+---
+
+## Thirukoral-29
+
+* [Click Here](https://www.youtube.com/watch?v=K60jpRsJVR8)
+
+---
+
+
